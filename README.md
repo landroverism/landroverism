@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @landroverism
 - 👀 I’m interested in Front-end Development
+- ReactJS, TailwindCSS
 - 🌱 I’m currently learning Next.JS
 - 💞️ I’m looking to collaborate on in  demand opensorce proojects.
 - 📫 How to reach me 

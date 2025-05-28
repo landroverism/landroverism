@@ -5,10 +5,11 @@
 - 💞️ I’m looking to collaborate on in  demand opensorce proojects.
 - 📫 How to reach me 
 
-whatsapp: +254 713 593401
-Website : https://hamkemboi.vercel.app
-Instagram: https://www.instagram.com/landroverism/
+Whatsapp: +254 713 593401
 
+Website : https://hamkemboi.vercel.app
+
+Instagram: https://www.instagram.com/landroverism/
 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: When free , watch and play soccer.

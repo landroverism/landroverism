@@ -7,9 +7,9 @@
 
 Whatsapp: +254 713 593401
 
-Website : https://hamkemboi.vercel.app
+Website :hamkemboi.com
 
-Instagram: https://www.instagram.com/landroverism/
+Instagram:instagram.com/landroverism/
 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: When free , watch and play soccer.
